@@ -1,0 +1,3 @@
+Deathdream is a niche subgenre that blends elements of vaporwave and dark ambient. It’s characterized by droning soundscapes, melancholic textures, and a dreamlike atmosphere that often evokes themes of loss, mortality, and introspection. The genre tends to incorporate slow, atmospheric rhythms and reverb-laden samples, creating an eerie, almost cinematic mood that transports the listener to a reflective, somber state.
+
+In essence, deathdream takes the nostalgic, often surreal aesthetics of vaporwave and fuses them with the haunting, immersive qualities of dark ambient music. This combination makes it a compelling choice for those looking to experience a sound that is both ethereal and emotionally charged.
